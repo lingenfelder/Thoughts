@@ -1,0 +1,2 @@
+# Thoughts
+Ideas, Inspirations, Discussions
